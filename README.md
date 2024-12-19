@@ -1,4 +1,4 @@
 ### Trang Hỗ Trợ Cho Người Khiếm Thị , Các Bạn Khiếm Thị Sử Dụng Máy Đọc Và Làm Theo Hướng Dẫn Nhé , Mọi Đóng Góp Xin Gửi Về Cho Tôi Qua Gmail: vuminhngocpt@gmail.com Xin Cảm Ơn , Tôi sẽ Cố Gắng Làm Sao Cho Bạn Hiểu Ý Tôi ,bạn hãy làm cộng tác viên với tôi để cải thiện trang này để phù hợp với điều kiện của bạn , Hãy Vuốt Xuống Để Xem Hướng Dẫn 
 
 ##### Hướng Dẫn , Bạn Phải Sử Dụng Điện Thoại Thông Minh Mình Ưu Tiên Hệ Điều Hành Android Đối Với iPhone Bạn Phải Sử Dụng iPhone 7 Đổ Lên Mới Có Tiếng Việt , Hãy Nhờ Người Thân Cập Nhật Hệ Điều Hành Và Các Phần Mềm Thường Xuyên Để Không Bị Lỗi Nhé 
-#### Hướng Dẫn , Các ứng dụng tôi sẽ để liên kết trực tiếp đến trang tải ứng dụng đó , hãy nhớ chỗ nào có từ : Bấm Vào Đây Để Tải thì bạn vào bấm đó và tôi sẽ đưa bạn thẳng đến trang để bạn có thể tải được ứng dụng đó 
+#### Hướng Dẫn , Các ứng dụng tôi sẽ để liên kết trực tiếp đến trang tải ứng dụng đó , hãy nhớ chỗ nào có từ : Bấm Vào Đây Để Tải thì bạn vào bấm đó và tôi sẽ đưa bạn thẳng đến trang để bạn có thể tải được ứng dụng đó , tôi sẽ đưa bạn tới trang web để tải nên giao diện sẽ hơi khó bạn cố gắng học hỏi hoặc cách tốt nhất hãy nhờ người thân tải giúp 
